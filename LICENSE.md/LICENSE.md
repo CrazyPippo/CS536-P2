@@ -1,0 +1,1 @@
+Seems a fun class.
